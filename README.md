@@ -36,8 +36,7 @@ Make sure to keep each T&C up to date based on your app’s current data handlin
 
 For inquiries or legal requests, please contact:
 
-📧 **Email**: [your-email@example.com]  
-🌐 **Portfolio / Website**: [your-website.com]
+📧 **Email**: [imnotdanish05bussiness@gmail.com] 
 
 ---
 
